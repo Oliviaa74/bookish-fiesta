@@ -1,1 +1,12 @@
 # bookish-fiesta
+<a href="https://fashiontsense.blogspot.com/">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-01">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-02">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-03">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-04">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-05">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-01-1">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-06">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-07">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-08">.</a>
+<a href="https://ssmubeen248.wixsite.com/slot-09">.</a>
